@@ -18,7 +18,7 @@ I can find relief from the task through avoiding the task, or doing the fucking 
 In yoga, there is a concept of the "right amount of bad feeling", the discomfort of stretching now is less than pulling something later, and the discomfort of stretching strengthens my tolerance for overall discomfort.  
 Washing the dishes now means less dishes to wash later and clean dishes now and proof that washing the dishes isn't that big a deal.  
 
-#Lesser Activation of the Fuse  
+# Lesser Banishing of the Procrastination  
 I have to break the cycle at its start, when I first notice "wow there's some chores in this house."  
 I don't want to wash the dishes, (acknowledge the feeling, visualize drawing a circle)  
 I am going to wash the dishes anyway (visualize drawing Saturn's glyph inside circle, establish commitment),  
