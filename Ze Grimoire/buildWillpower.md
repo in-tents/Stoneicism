@@ -43,7 +43,7 @@ I sit down, I run down the list of my usual tasks, practicing the ones I'm scare
 Next is weaponized productive procrastination.  
 Wash dishes or smoke weed and play video games? Smoke weed and video games, procrastinate dishes. But if I remove the option for easy free dopamine, and introduce a harder option:  
 Wash dishes or go gym? I will wash dishes, and procrastinate gym. One big dragon makes the little dragons look even smaller. I would not rely on this, since this does strengthen your avoidance circuit, but worth exploring.  
-So what if instead I make the big dragon a high-commitment but low effort task, like yoga?  
+So what if instead I make the big dragon a high-commitment, low-effort, and life energy stimulating task?  
 Wash dishes or do yoga? I specifically do yin yoga targeting my liver, but taking the time to mentally and physically reset may be all you need to find the strength to do the dishes.  
 This way at least you are procrastinating doing something good for you. Like oh god I don't wanna vacuum so I'm gonna binge eat broccoli. That's a win.  
 
