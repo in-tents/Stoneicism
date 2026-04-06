@@ -51,7 +51,6 @@ Finally, the most occultic part, partly because we love a good mnemonic device, 
 Choose an incense to burn at the start of your task, I will suggest Frankincense.  
 Play a chore or gym playlist.  
 Drawing the sigil in the air is arguably a stronger fuse, simply because you're bridging the gap between thought and action.  
-Even though its a saturn glyph, I'll vibrate Hecate since she is the theurgic deity in AVF.  
 A prayer to saturn then doing something saturnian won't hurt either.  
 
 A small warning, this ritual is not FDA approved, THIS is the peer review, use at your own risk:  
