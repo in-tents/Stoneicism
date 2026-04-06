@@ -6,9 +6,6 @@ There are dirty dishes.
 I should wash them.  
 I'd rather smoke weed and play video games.  
 
-I'm going to share with you a psychological technology that I use to override my procrastination habits  
-then I'm going to give you a couple tricks up your sleeve for tasks that have more internal resistance.  
-
 In order to break the cycle, we must first understand it.  
 When I am presented with a task such as washing the dishes, I worry about the understimulation involved in such a low dopamine task.  
 I don't like being uncomfortable, so I avoid the doing the task, usually by doing something comfortable, like playing video games and smoking weed.  
